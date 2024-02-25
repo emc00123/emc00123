@@ -1,11 +1,20 @@
-# EMC易倍体育回家页 - 服务至上，永不失联
+# EMC易倍体育回家页 - 敬请保存 永不失联
 ![image](https://github.com/emc00123/emc00123/assets/161131716/7c9a2641-80ea-4bcf-9aa9-06c69f78449d)
 
 
-### EMC易倍体育-永不失联:  [官网推广页](https://emcty.com)
-### EMC易倍体育-永不失联:  [H5官网推广页](xxx.com)
-### EMC易倍体育-永不失联:  [APP下载官网推广页](xxx.com)
-
+### EMC易倍体育-永不失联:  [PC官网链接]
+### <https://www.jnsk88.com>
+### <https://www.ebeb68.com>
+### EMC易倍体育-永不失联:  [H5官网链接]
+### <https://www.mbb788.com>
+### <https://www.mbb988.com>
+### EMC易倍体育-永不失联:  [APP下载官网链接]
+### <https://www.mzz288.com>
+### <https://www.mzz588.com>
+### EMC易倍体育-永不失联:  [特殊地区链接]
+### [特殊地区PC] <https://www.hd6wsd.com>
+### [特殊地区H5] <https://www.gh5qaz.com>
+### [特殊地区APP下载] <https://www.pd8wer.com>
 <!--
 **emc00123/emc00123** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
