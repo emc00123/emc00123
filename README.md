@@ -3,18 +3,18 @@
 
 
 ### EMC易倍体育-永不失联:  [PC官网链接]
-### <https://www.uin3e.com>
-### <https://www.uin5e.com>
+### <https://www.iemr89.com>
+### <https://www.xlrw53.com>
 ### EMC易倍体育-永不失联:  [H5官网链接]
-### <https://www.un8e.com>
-### <https://www.uin8s.com>
+### <https://www.ikzo12.com>
+### <https://www.snwt69.com>
 ### EMC易倍体育-永不失联:  [APP下载官网链接]
-### <https://www.emc135.app>
-### <https://www.emc100.app>
+### <https://www.cksk80.com>
+### <https://www.rbrz30.com>
 ### EMC易倍体育-永不失联:  [特殊地区链接]
-### [特殊地区PC] <https://www.av7o.com>
-### [特殊地区H5] <https://www.abv7o.com>
-### [特殊地区APP下载] <https://www.abv60.com>
+### [特殊地区PC] <https://www.tjjf62.com>
+### [特殊地区H5] <https://www.mqpz26.com>
+### [特殊地区APP下载] <https://www.tylv93.com>
 <!--
 **emc00123/emc00123** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
