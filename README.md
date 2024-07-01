@@ -3,14 +3,14 @@
 
 
 ### EMC易倍体育-永不失联:  [PC官网链接]
-### <https://www.iemr89.com>
-### <https://www.xlrw53.com>
+### <https://www.ozbc805.com>
+### <https://www.ozbc190.com>
 ### EMC易倍体育-永不失联:  [H5官网链接]
-### <https://www.ikzo12.com>
-### <https://www.snwt69.com>
+### <https://www.ozbb905.com>
+### <https://www.ozbb837.com>
 ### EMC易倍体育-永不失联:  [APP下载官网链接]
-### <https://www.cksk80.com>
-### <https://www.rbrz30.com>
+### <https://www.emc101.app>
+### <https://www.emc102.app>
 ### EMC易倍体育-永不失联:  [特殊地区链接]
 ### [特殊地区PC] <https://www.tjjf62.com>
 ### [特殊地区H5] <https://www.mqpz26.com>
