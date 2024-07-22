@@ -6,14 +6,14 @@
 ### <https://www.ozbc805.com>
 ### <https://www.ozbc190.com>
 ### EMC易倍体育-永不失联:  [H5官网链接]
-### <https://www.ozbb905.com>
-### <https://www.ozbb837.com>
+### <https://www.bbkk7.com>
+### <https://www.kknm7.com>
 ### EMC易倍体育-永不失联:  [APP下载官网链接]
 ### <https://www.emc101.app>
 ### <https://www.emc102.app>
 ### EMC易倍体育-永不失联:  [特殊地区链接]
 ### [特殊地区PC] <https://www.tjjf62.com>
-### [特殊地区H5] <https://www.mqpz26.com>
+### [特殊地区H5] <https://www.bbkk7.com>
 ### [特殊地区APP下载] <https://www.tylv93.com>
 <!--
 **emc00123/emc00123** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
