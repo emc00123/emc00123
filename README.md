@@ -10,11 +10,11 @@
 ### <https://www.gux4518.com>
 ### EMC易倍体育-永不失联:  [APP下载官网链接]
 ### <https://www.gux6265.com>
-### <https://www.gux6734.com>
+### <https://www.gux6265.com>
 ### EMC易倍体育-永不失联:  [特殊地区链接]
 ### [特殊地区PC] <https://www.gux5145.com>
 ### [特殊地区H5] <https://www.gux8172.com>
-### [特殊地区APP下载] <https://www.gux2897.com>
+### [特殊地区APP下载] <https://www.gux6265.com>
 <!--
 **emc00123/emc00123** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
