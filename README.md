@@ -2,16 +2,16 @@
 ![image](https://github.com/emc00123/emc00123/assets/161131716/7c9a2641-80ea-4bcf-9aa9-06c69f78449d)
 
 
-### EMC易倍体育-永不失联:  [PC官网链接]
+### 永不失联:  [PC官网链接]
 ### <https://www.gux8235.com>
 ### <https://www.gux3558.com>
-### EMC易倍体育-永不失联:  [H5官网链接]
+### 永不失联:  [H5官网链接]
 ### <https://www.gux4795.com>
 ### <https://www.gux4518.com>
-### EMC易倍体育-永不失联:  [APP下载官网链接]
+### 永不失联:  [APP下载官网链接]
 ### <https://www.gux6265.com>
 ### <https://www.gux6265.com>
-### EMC易倍体育-永不失联:  [特殊地区链接]
+### 永不失联:  [特殊地区链接]
 ### [特殊地区PC] <https://www.gux5145.com>
 ### [特殊地区H5] <https://www.gux8172.com>
 ### [特殊地区APP下载] <https://www.gux6265.com>
